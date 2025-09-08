@@ -11,6 +11,7 @@ Why Red Sandalwood Is a Lucrative Investment
 Red sandalwood, also known as Pterocarpus santalinus, is one of the most valuable timber species in the world. Due to its high demand in global markets for medicinal, cosmetic, and cultural uses, prices have skyrocketed over the past decade. Unlike regular crops, red sandalwood trees take time to mature — around 12–15 years — but once ready, the returns can be exponential.
 
 With the government permitting controlled cultivation and exports, investing in red sandalwood farmland for sale in Hyderabad and Vijayawada has become one of the most attractive long-term wealth-building strategies.
+https://www.redsandalspp.com/index
 
 About the Red Sandals Project
 
